@@ -1,1 +1,1 @@
-# gave-up
+# gave-up :  as you said, nothing  would come out of relationships, giving you a rose aise hi ,, mann krra tha..
