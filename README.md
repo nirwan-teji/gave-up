@@ -1,1 +1,1 @@
-# gave-up :  as you said, nothing  would come out of relationships, giving you a rose aise hi ,, mann krra tha..
+# If you know enough to read the readme page of the repo , the i want to say ki "MERI DEEWANI HOGYI TU"..!!!
